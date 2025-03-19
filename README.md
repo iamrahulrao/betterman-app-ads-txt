@@ -1,0 +1,1 @@
+# betterman-app-ads-txt
